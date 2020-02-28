@@ -1,4 +1,2 @@
-meu primeiro aquivo no git
-
-
-minha pica dura quero dar o cu
+segundo sistema muito louco
+mais uma linha aki
